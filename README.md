@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Eveything I can**
 
-- 📫 How to reach me **alphi.abngladesh@gmail.com**
+- 📫 How to reach me **alphi.bngladesh@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
